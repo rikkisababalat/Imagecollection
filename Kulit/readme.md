@@ -1,0 +1,1 @@
+gambaran kulit
